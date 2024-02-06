@@ -1,8 +1,9 @@
-hi, @white-calx
-currently studying cs in college
-really bad adhd
-started many projects i never got past reading up on, am trying to fix that
-don't expect anything actually interesting or worth checking out here
+hi, @white-calx  
+currently studying cs in college  
+really bad adhd  
+
+started many projects i never get past reading up on, currently trying to fix that  
+don't expect anything actually interesting or worth checking out here lol  
 
 discord: lav
 <!---
