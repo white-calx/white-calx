@@ -1,4 +1,4 @@
-hi, @white-calx  
+hi, @white-calx aka lav
 currently studying cs in college  
 really bad adhd  
 
